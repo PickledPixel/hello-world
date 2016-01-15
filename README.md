@@ -1,2 +1,4 @@
 # hello-world
 GitHub Tut Repo
+
+OH MAN I AM NOT GOOD WITH COMPUTER PLZ TO HELP
